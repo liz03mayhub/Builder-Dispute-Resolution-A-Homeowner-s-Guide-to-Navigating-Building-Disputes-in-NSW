@@ -170,3 +170,9 @@ Need Guidance With a Building Dispute?
 If you’re facing delays, defects, payment disputes, or communication issues with your builder, professional dispute support can make the process clearer and far less stressful.
 
 Learn more about the services available to help you navigate a building dispute and protect your rights.
+
+Builders Dispute Resolution Network (BDRN)
+
+Tel. 0412 921 716
+
+Email. admin@bdrn.com.au
